@@ -1,3 +1,3 @@
 # hello-world
 Hello friends.
-I currently work as a Tech 3 Maintenance Technician at an apartment complex, specializing as an HVAC technician. Outside of keeping the property running and managing climate systems, my favorite thing to do is spend quality time going out with my family.
+I currently work as a Tech 3 Maintenance Technician at an apartment complex, specializing as an HVAC technician. Outside of keeping the property running and managing climate systems, my favorite thing to do is spend quality time going out with my family...
